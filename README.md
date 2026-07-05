@@ -23,3 +23,8 @@ http://154.36.161.228:8124/
 邀请码联系客服,微信huihuapp
 使用教程：
 https://www.youtube.com/shorts/_C4sZEqrkUs
+
+<img width="431" height="219" alt="image" src="https://github.com/user-attachments/assets/f0f9762f-39d6-47be-8797-c621cf7fb077" />
+功能：
+<img width="1080" height="1440" alt="24cd8228fd72ad75fbf30a1e1f50758b" src="https://github.com/user-attachments/assets/123f29c9-827c-45d3-a197-f004f31ad1b4" />
+
